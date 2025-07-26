@@ -11,4 +11,4 @@ Surviving (and thriving) through a major company acquisition.
 Smart Home tech, IoT, and home automation rabbit holes 🐇.
 Getting kids excited about STEM.
 
-How to reach me: You can find me on [LinkedIn](https://www.linkedin.com/in/pavelvershinin/) or drop me an email at [my nick here at google mail]
+How to reach me: You can drop me an email at [my nick here at google mail]
